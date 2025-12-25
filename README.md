@@ -1,2 +1,2 @@
-## “ᑯo ყoᥙ Ꙇɩƙᥱ ωoɾຕ⳽?”
-![c5efef30421046eec082f2a59403022b](https://github.com/user-attachments/assets/c6c1670a-03c3-4bc0-8741-3c9f6ea803a3)
+![b212f467a9fd9ced6b084496ff5dba5c (1)](https://github.com/user-attachments/assets/80d40e4c-0816-4cd9-ba7f-b5d6aa568238)
+
