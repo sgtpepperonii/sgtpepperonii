@@ -8,6 +8,7 @@ and I can see so much in your eyes*
 but don't talk, put your head on my shoulder*
 
 *Come close, close your eyes and be still*
+
 *Don't talk, take my hand and let me hear your heart beat*
 
 *Being here with you feels so right, 
