@@ -1,5 +1,6 @@
 
-![f2293335645373cf2c81ae12ca29de0a (1)](https://github.com/user-attachments/assets/57803f3c-bdc2-4397-8f79-164ecc317529)
+<img width="1348" height="1168" alt="314 sin título_20260104205306" src="https://github.com/user-attachments/assets/fb503fcd-5c61-4338-9b2a-9e707245ae09" />
+
 
 
 
@@ -21,4 +22,4 @@ we could live forever tonight*
 
 *Let's not think about tomorrow, 
 and don't talk, put your head on my shoulder*
-![414ea3750164701f902eb73f20edb97f](https://github.com/user-attachments/assets/b30b5b0f-0332-41f4-b8be-d7e7f3c261be)
+<img width="1348" height="1168" alt="314 sin título_20260104205635" src="https://github.com/user-attachments/assets/26bb7d86-38da-4894-8ca5-8cd0e14cc4ba" />
