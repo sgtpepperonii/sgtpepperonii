@@ -30,7 +30,6 @@ ${\textsf{\color{#4d4e4f}zone}}$
 ![tumblr_5cf8db2c48377b8459875bee16526c42_913fd85e_250](https://github.com/user-attachments/assets/95a65a38-b776-41d1-a598-ece3186255e2)
 <img width="103" height="59" alt="tumblr_4c894e9bc75fe174df59cdb238caee6f_d4d763a2_250" src="https://github.com/user-attachments/assets/aec0e5ae-e809-4884-9fb9-6b7358dfd3c8" />
 <img width="99" height="56" alt="tumblr_387e7f8cf5e018b83c44b3d12021d153_22ca98c3_100" src="https://github.com/user-attachments/assets/d763bd1d-6f59-45dc-b62a-94758471b72e" />
-<img width="500" height="500" alt="2ip8k2" src="https://github.com/user-attachments/assets/f66a61cf-23db-49cb-ae86-502cf7666a1f" />
-
+![IMG-7318](https://github.com/user-attachments/assets/2e311c06-5d44-4a3a-bad6-d2a9a88b6559)
 
 
