@@ -26,5 +26,12 @@ ${\textsf{\color{#4d4e4f}true to me  ﹏}}$
 <img width="103" height="59" alt="tumblr_4c894e9bc75fe174df59cdb238caee6f_d4d763a2_250" src="https://github.com/user-attachments/assets/aec0e5ae-e809-4884-9fb9-6b7358dfd3c8" />
 <img width="99" height="56" alt="tumblr_387e7f8cf5e018b83c44b3d12021d153_22ca98c3_100" src="https://github.com/user-attachments/assets/d763bd1d-6f59-45dc-b62a-94758471b72e" />
 ![IMG-7318](https://github.com/user-attachments/assets/2e311c06-5d44-4a3a-bad6-d2a9a88b6559)
+<img width="800" height="62" alt="61387993" src="https://github.com/user-attachments/assets/660749b5-5991-44d7-9a35-f0b1bd842a0f" />
+![bipride](https://github.com/user-attachments/assets/d3e268cb-0281-4f0e-8ccd-ac0013a3e7fb) ![rotating-knife-gif](https://github.com/user-attachments/assets/9574e187-661c-42d0-841c-8df94687c398) ![sjRyuag](https://github.com/user-attachments/assets/0b28e60e-1989-4897-912b-f9cda7ca478c) ![f11q90w](https://github.com/user-attachments/assets/2c42e871-322c-4137-a69e-115f0db7f9a3) ![black](https://github.com/user-attachments/assets/ddaf7749-3c94-4789-b503-904389fddaf6) ![blackcats](https://github.com/user-attachments/assets/e16e97cc-4c60-492f-8a7d-7f955c218303)
+
+
+
+
+
 
 
